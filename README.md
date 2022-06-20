@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TazeemASC21
+- 👀 I’m interested in ML
+- 🌱 I’m currently learning ML
+- 💞️ I’m looking to collaborate on anything
+- 📫 Reach me on LinkedIn: https://www.linkedin.com/in/tazeem-mahashin-ba1bb320b/
